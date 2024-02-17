@@ -1,7 +1,5 @@
 <div align="center">
 <a href="https://www.glitter-graphics.com"><img src="http://dl8.glitter-graphics.net/pub/59/59198hrthuy4syh.gif" width=400 height=17 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
-###
-
 <div align="center">
   <img src="https://img.shields.io/static/v1?message=LinkedIn&logo=linkedin&label=&color=0077B5&logoColor=white&labelColor=&style=for-the-badge" height="25" alt="linkedin logo"  />
   <img src="https://img.shields.io/static/v1?message=Youtube&logo=youtube&label=&color=FF0000&logoColor=white&labelColor=&style=for-the-badge" height="25" alt="youtube logo"  />
