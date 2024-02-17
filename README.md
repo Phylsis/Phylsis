@@ -24,6 +24,7 @@
 <img src="https://pixelsafari.neocities.org/blinkies/animal/catmeow.gif">
 <img src="https://pixelsafari.neocities.org/blinkies/animal/batmoon.gif">
 <img src="https://media.discordapp.net/attachments/872217789589504031/1189359048005521418/tumblr_a7ef2ed1bf59691154dd3447022df685_d519ca71_250.gif?ex=65de796e&is=65cc046e&hm=268002d26eacf511d417b565dd2288b046c4fa59481077e0450ff1cafb6171ca&=&width=182&height=30">
+<img src="https://i7.glitter-graphics.org/pub/380/380957zusac570k8.gif">
 
 
 <p align="center">
