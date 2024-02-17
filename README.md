@@ -1,5 +1,5 @@
 <div align="center">
-<a href="https://www.glitter-graphics.com"><img src="http://dl8.glitter-graphics.net/pub/59/59198hrthuy4syh.gif" width=400 height=17 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank>glitter-graphics.com</a>
+<a href="https://www.glitter-graphics.com"><img src="http://dl8.glitter-graphics.net/pub/59/59198hrthuy4syh.gif" width=400 height=17 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
 ###
 
 <div align="center">
