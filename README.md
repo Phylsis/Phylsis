@@ -3,7 +3,7 @@
 
   <p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery85/30796f13.gif?v=26dffab5">
-
+  <p align="center">
 ![image](https://github.com/Phylsis/Phylsis/assets/160338748/631ff505-9187-45f2-af13-b06edfd414e7) ![image](https://github.com/Phylsis/Phylsis/assets/160338748/16b967af-c512-4c87-821c-65a10e5dca9a)
 ![image](https://github.com/Phylsis/Phylsis/assets/160338748/22cc0e4f-d115-4e21-b5e9-48177c86b202) ![image](https://github.com/Phylsis/Phylsis/assets/160338748/5063e958-19fd-400c-9f6c-5e92fbf84374)
 ![image](https://github.com/Phylsis/Phylsis/assets/160338748/2b38a441-68a0-41d5-b7e6-2f038cb4102c) ![image](https://github.com/Phylsis/Phylsis/assets/160338748/b1e2381b-93d6-4a13-94b3-4655304a979d)
