@@ -4,9 +4,8 @@
 
 <img src="https://gifcity.carrd.co/assets/images/gallery93/171c273c.gif?v=26dffab5"> 1
 <img src="https://gifcity.carrd.co/assets/images/gallery93/986693eb.png?v=26dffab5"> 3
-<img src="https://gifcity.carrd.co/assets/images/gallery132/ef262c99.gif?v=26dffab5"> 4
-<img src="https://gifcity.carrd.co/assets/images/gallery132/52736da7.gif?v=26dffab5"> 5
-<img src="https://gifcity.carrd.co/assets/images/gallery132/85adc39d.gif?v=26dffab5"> 6 
+<img src="https://gifcity.carrd.co/assets/images/gallery171/c2853efd.gif?v=26dffab5"> 4
+<img src="https://gifcity.carrd.co/assets/images/gallery18/16cb0ff8.png?v=26dffab5"> 5
 <img src="https://gifcity.carrd.co/assets/images/gallery171/4f6012a2.gif?v=26dffab5"> 7
 <img src="https://gifcity.carrd.co/assets/images/gallery14/77e19876.gif?v=26dffab5"> 2
 <img src="https://gifcity.carrd.co/assets/images/gallery17/77216d48.gif?v=26dffab5"> 8
