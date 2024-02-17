@@ -1,4 +1,4 @@
 <p align="center">
-<img src=[https://pixelsafari.neocities.org/dividers/blackcats.gif](https://64.media.tumblr.com/64084f352d1664758e1a4febcb0e4464/8ac72bb49761ea20-51/s640x960/fb1357b4e0f4e38467ac984cd183ecb49f268196.gifv)https://64.media.tumblr.com/64084f352d1664758e1a4febcb0e4464/8ac72bb49761ea20-51/s640x960/fb1357b4e0f4e38467ac984cd183ecb49f268196.gifv>
+<img src="https://64.media.tumblr.com/78a1f812e1086e5a88bf236a2e4f8744/5a143321e635ef52-db/s2048x3072/14f97c97c467cdb956fd8fcbc855337648f37237.pnj">
 <p align="center">
 
