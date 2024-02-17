@@ -4,7 +4,8 @@
   <p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery85/30796f13.gif?v=26dffab5">
 
-![image](https://github.com/Phylsis/Phylsis/assets/160338748/631ff505-9187-45f2-af13-b06edfd414e7)
+![image](https://github.com/Phylsis/Phylsis/assets/160338748/631ff505-9187-45f2-af13-b06edfd414e7) ![image](https://github.com/Phylsis/Phylsis/assets/160338748/16b967af-c512-4c87-821c-65a10e5dca9a)
+
 
 
 <p align="center">
