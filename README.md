@@ -4,11 +4,10 @@
 <p align="center">
 ┌⌯━━━━━━⊰⍣⊱━━━━━━⌯┐
 
-⋆◦⋅⍣⋅◦⋆
-
+<p align="center">
 insert text
 
-⋆◦⋅⍣⋅◦⋆
+<p align="center">
 
 └⌯━━━━━━⊰⍣⊱━━━━━━⌯┘
 
