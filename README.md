@@ -15,12 +15,12 @@
 
 <p align="center">
 <img src="https://pixelsafari.neocities.org/stamps/more/dog.gif">1
+  <img src="https://gifcity.carrd.co/assets/images/gallery232/8c7c3c9f.png?v=26dffab5">5
 <img src="https://pixelsafari.neocities.org/stamps/hypno.gif">2
+  <img src="https://gifcity.carrd.co/assets/images/gallery236/3e15b6da.png?v=26dffab5">6
 <img src="https://gifcity.carrd.co/assets/images/gallery55/e45f5cec.png?v=26dffab5">3
+  <img src="https://gifcity.carrd.co/assets/images/gallery236/6b80a06b.gif?v=26dffab5">7
   <img src="https://gifcity.carrd.co/assets/images/gallery61/b683d51c.gif?v=26dffab5">4
-<img src="https://gifcity.carrd.co/assets/images/gallery232/8c7c3c9f.png?v=26dffab5">5
-<img src="https://gifcity.carrd.co/assets/images/gallery236/3e15b6da.png?v=26dffab5">6
-<img src="https://gifcity.carrd.co/assets/images/gallery236/6b80a06b.gif?v=26dffab5">7
 <img src="https://gifcity.carrd.co/assets/images/gallery247/e3aa317d.png?v=26dffab5">8
 
 
