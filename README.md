@@ -15,8 +15,7 @@
 
 <p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery90/5164ddcf.gif?v=26dffab5">
-<p align="center">
-<img src="https://cdn.discordapp.com/attachments/699904232475852899/1208762215407288320/chuj.png?ex=65e47689&is=65d20189&hm=9df4942d59a741e2805120e5d32b69ad264ee5addfac50e04657707e8697d72d&">
+
 
 
 
