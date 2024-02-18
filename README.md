@@ -11,7 +11,7 @@
 └⌯━━━━━━━━━━━━━━━━━━⊰⍣⊱━━━━━━━━━━━━━━━━━━⌯┘
 
 <p align="center">
-<img src="https://cdn.discordapp.com/attachments/699904232475852899/1208761888570347540/huj.png?ex=65e4763b&is=65d2013b&hm=a08eb52919999d42750d3dc25d00abd3b6c5a4b25442719ea0e274e6e20811f8&">
+<img src="https://cdn.discordapp.com/attachments/699904232475852899/1208762215407288320/chuj.png?ex=65e47689&is=65d20189&hm=9df4942d59a741e2805120e5d32b69ad264ee5addfac50e04657707e8697d72d&">
 
 
 
