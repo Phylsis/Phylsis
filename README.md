@@ -15,7 +15,7 @@
 
 <p align="center">
 <img src="https://pixelsafari.neocities.org/stamps/more/dog.gif">
-<img src="https://gifcity.carrd.co/assets/images/gallery51/f3624a8a.png?v=26dffab5">
+<img src="https://pixelsafari.neocities.org/stamps/hypno.gif">
 <img src="https://gifcity.carrd.co/assets/images/gallery55/e45f5cec.png?v=26dffab5">
   <img src="https://gifcity.carrd.co/assets/images/gallery61/b683d51c.gif?v=26dffab5">
 <img src="https://gifcity.carrd.co/assets/images/gallery232/8c7c3c9f.png?v=26dffab5">
