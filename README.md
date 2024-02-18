@@ -14,8 +14,15 @@
 
 
 <p align="center">
-<img src="https://64.media.tumblr.com/05430d732ce5f2d785a0486a045d6de1/8d9c8026d5c4d00d-dd/s2048x3072/7eb30de9b907f2bbe6920b811d7c23b500608c2f.pnj">
-<p align="center">
+<img src="https://pixelsafari.neocities.org/stamps/more/dog.gif">
+<img src="https://gifcity.carrd.co/assets/images/gallery51/f3624a8a.png?v=26dffab5">
+<img src="https://gifcity.carrd.co/assets/images/gallery55/e45f5cec.png?v=26dffab5">
+  <img src="https://gifcity.carrd.co/assets/images/gallery61/b683d51c.gif?v=26dffab5">
+<img src="https://gifcity.carrd.co/assets/images/gallery232/8c7c3c9f.png?v=26dffab5">
+<img src="https://gifcity.carrd.co/assets/images/gallery236/3e15b6da.png?v=26dffab5">
+<img src="https://gifcity.carrd.co/assets/images/gallery236/6b80a06b.gif?v=26dffab5">
+<img src="https://gifcity.carrd.co/assets/images/gallery247/e3aa317d.png?v=26dffab5">
+
 
     
 
