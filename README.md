@@ -3,7 +3,8 @@
 
 <p align="center">
 ┌⌯━━━━━━━━━━━━━━━━━━⊰⍣⊱━━━━━━━━━━━━━━━━━━⌯┐
-
+<p align="center">
+ <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif">
 <p align="center">
 https://aeenic.carrd.co
 <p align="center">
@@ -11,6 +12,8 @@ https://aeenic.carrd.co
   <p align="center">
   https://aenik.123guestbook.com
 <p align="center">
+ <p align="center">
+ <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif">
 └⌯━━━━━━━━━━━━━━━━━━⊰⍣⊱━━━━━━━━━━━━━━━━━━⌯┘
 
 
