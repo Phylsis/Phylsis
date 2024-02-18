@@ -11,7 +11,7 @@
 └⌯━━━━━━━━━━━━━━━━━━⊰⍣⊱━━━━━━━━━━━━━━━━━━⌯┘
 
 <p align="center">
-<img src="https://static.thenounproject.com/png/4253430-200.png">
+<img src="https://cdn.discordapp.com/attachments/699904232475852899/1208761583212433418/fgrhthdsfgf.png?ex=65e475f3&is=65d200f3&hm=0e67a854afed9dc274a39e5d1b847ca0e8dcfd28df5ab0fa13ea79b58aab7767&">
 
 
 
