@@ -27,6 +27,8 @@
   <img src="https://gifcity.carrd.co/assets/images/gallery61/b683d51c.gif?v=26dffab5">
 <img src="https://gifcity.carrd.co/assets/images/gallery247/e3aa317d.png?v=26dffab5">
 
+<p align="center">
+<img src="https://pixelsafari.neocities.org/dividers/heartbeat2.gif">
 
     
 
