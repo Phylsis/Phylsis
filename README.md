@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://64.media.tumblr.com/d456610dfe1284918eefa3435ff67530/378636566ebc7e3a-1e/s2048x3072/a2389dba9966a419fe3c70143eade4953f142627.pnj">
+<img src="https://64.media.tumblr.com/451c14403fe08e3ce6fa9cff063dc20a/0843875293616f12-2e/s640x960/1f6b8f29cc15cc11cae9c617971846a9c8c77a75.pnj">
 
 <p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery90/5164ddcf.gif?v=26dffab5">
