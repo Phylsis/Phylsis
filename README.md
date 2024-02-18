@@ -12,8 +12,8 @@
 
 
 
-![image](https://github.com/Phylsis/Phylsis/assets/160338748/09c45a68-2c3c-4fc4-a1c4-989105f49167)
-
+<p align="center">
+<img src="https://pixelsafari.neocities.org/dividers/heartbeat2.gif">
 
 
 
