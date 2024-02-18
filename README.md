@@ -11,7 +11,7 @@
 └⌯━━━━━━━━━━━━━━━━━━⊰⍣⊱━━━━━━━━━━━━━━━━━━⌯┘
 
 <p align="center">
-<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/a/ad/Circle_%28transparent%29.png/768px-Circle_%28transparent%29.png">
+<img src="https://png.pngtree.com/png-clipart/20220714/ourmid/pngtree-decorative-line-divider-black-png-image_5946937.png">
 
 
 
