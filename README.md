@@ -11,7 +11,8 @@
 └⌯━━━━━━━━━━━━━━━━━━⊰⍣⊱━━━━━━━━━━━━━━━━━━⌯┘
 
 <p align="center">
-![image](https://github.com/Phylsis/Phylsis/assets/160338748/1435b7ee-c28c-4e3d-bce8-debf36cedd04)
+![image](https://github.com/Phylsis/Phylsis/assets/160338748/14f6bcb3-07aa-476d-8440-3aa839db789e)
+
 
 
 <p align="center">
