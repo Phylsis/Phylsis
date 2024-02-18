@@ -10,12 +10,12 @@
      <p align="center">
 └⌯━━━━━━━━━━━━━━━━━━⊰⍣⊱━━━━━━━━━━━━━━━━━━⌯┘
 
+
+
+
 <p align="center">
- <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"><img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"><img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"><img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"><img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"><img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"><img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"><img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"><img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"><img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"><img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif">
-
-
-
-
+<img src="https://64.media.tumblr.com/05430d732ce5f2d785a0486a045d6de1/8d9c8026d5c4d00d-dd/s2048x3072/7eb30de9b907f2bbe6920b811d7c23b500608c2f.pnj">
+<p align="center">
 
     
 <img src="https://pixelsafari.neocities.org/stamps/more/dog.gif"> ![image](https://github.com/Phylsis/Phylsis/assets/160338748/16b967af-c512-4c87-821c-65a10e5dca9a)
