@@ -2,6 +2,9 @@
 <img src="https://64.media.tumblr.com/05430d732ce5f2d785a0486a045d6de1/8d9c8026d5c4d00d-dd/s2048x3072/7eb30de9b907f2bbe6920b811d7c23b500608c2f.pnj">
 
 <p align="center">
+<img src="https://gifcity.carrd.co/assets/images/gallery90/5164ddcf.gif?v=26dffab5">
+
+<p align="center">
 ┌⌯━━━━━━━━━━━━━━━━━━⊰⍣⊱━━━━━━━━━━━━━━━━━━⌯┐
 <p align="center">
 <img src="https://pixelsafari.neocities.org/favicon/animals/bird/bat6.gif"> https://aeenic.carrd.co
@@ -10,6 +13,8 @@
      <p align="center">
 └⌯━━━━━━━━━━━━━━━━━━⊰⍣⊱━━━━━━━━━━━━━━━━━━⌯┘
 
+<p align="center">
+<img src="https://gifcity.carrd.co/assets/images/gallery90/5164ddcf.gif?v=26dffab5">
 <p align="center">
 <img src="https://cdn.discordapp.com/attachments/699904232475852899/1208762215407288320/chuj.png?ex=65e47689&is=65d20189&hm=9df4942d59a741e2805120e5d32b69ad264ee5addfac50e04657707e8697d72d&">
 
@@ -54,6 +59,8 @@
 <img src="https://i7.glitter-graphics.org/pub/380/380957zusac570k8.gif">
 <img src="https://pixelsafari.neocities.org/blinkies/no.gif">
 
+<p align="center">
+<img src="https://gifcity.carrd.co/assets/images/gallery90/5164ddcf.gif?v=26dffab5">
     
 <p align="center">
 <img src="https://64.media.tumblr.com/05430d732ce5f2d785a0486a045d6de1/8d9c8026d5c4d00d-dd/s2048x3072/7eb30de9b907f2bbe6920b811d7c23b500608c2f.pnj">
