@@ -4,24 +4,17 @@
 <p align="center">
 ┌⌯━━━━━━━━━━━━━━━━━━⊰⍣⊱━━━━━━━━━━━━━━━━━━⌯┐
 <p align="center">
- <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif">
-<p align="center">
 https://aeenic.carrd.co
 <p align="center">
  <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif">
   <p align="center">
   https://aenik.123guestbook.com
-<p align="center">
- <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif">
-  <p align="center">
 └⌯━━━━━━━━━━━━━━━━━━⊰⍣⊱━━━━━━━━━━━━━━━━━━⌯┘
 
+<p align="center">
+ <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy12.gif">
 
 
-
-  <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery85/30796f13.gif?v=26dffab5">
-  <p align="center">
 
 
 
